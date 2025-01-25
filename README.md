@@ -1,0 +1,2 @@
+# FikraZangu
+My Thoughts
